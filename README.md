@@ -1,2 +1,0 @@
-# seanswebportfolio
-seanswebportfolio2024
